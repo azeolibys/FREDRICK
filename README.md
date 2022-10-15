@@ -8,12 +8,18 @@ I am on a mission to find my friend.
 
 I wish my friend had a voice that could be heard...
 
-I carved his audience, I wish he was able to hear and listen...
+I carved his audience,
+
+I wish he was able to hear and listen...
 
 I MISS HIM!
 
+
 Now, you are the friend I am presently seeking to find. 
-I give you the voice to speak to your audience, and secure you the attention you deserve in the digital space and beyond through content writing, qauality copywriting, social media management, search engine optimization, and excellent digital marketing services.
+
+Here's what I do!
+
+I give you the voice to speak to your audience, and secure you the attention you deserve in the digital space and beyond through content writing, quality copywriting, social media management, search engine optimization, and excellent digital marketing services.
 
 In a cognitive statement, I am a professional writer, digital marketing expert, content creator, entrepreneur, and a Web3 innovator.
 
